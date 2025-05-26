@@ -15,3 +15,5 @@ Kobiety te pokuciły się z Policją o koce i szale i koce zwoltex arosa i ponch
 Sklepy Akszyn Git Hub są jak nie ma lotto lub jest zakaz można zawsze zrobić duże zakupy ale tylko Niemcy.
 Firma Nik Laser to chłam od hakera Lasera do sklepów Piotr i Paweł czy Rumulus Alexy Cheng sieć sklepów i nabijanie się z lotto i kupienie Majka za grosze bo ma długi i zakupy za lotto tylko w Piotr i Paweł i Rumulus chłam PRL. Oni podobno Alexy Cheng dają do wygrania w churpakach nie produkują Voisów jak na frmie z kurczakami tylko chodują jak Jelonka ze stajni 1 okaz na miljard. Piotr i Paweł i sklepy Roumulus  to zamknienty sklep politycznie nie portal społeczności te sklepy mają towar z PRL. 
 Maik Lotkowski to szmata PRL Piotr i Paweł i Rumulus Alexy Cheng do wygrania w chrupkach frytkach. 
+Jak Maik Lotkowski ma długi idzie po sklepy dla świata Piotr i Paweł i Rumulus. 
+Dziś harbiom można być z badziewiakami Allegro, Amazon i Akszyn Github. 
