@@ -17,3 +17,5 @@ Firma Nik Laser to chłam od hakera Lasera do sklepów Piotr i Paweł czy Rumulu
 Maik Lotkowski to szmata PRL Piotr i Paweł i Rumulus Alexy Cheng do wygrania w chrupkach frytkach. 
 Jak Maik Lotkowski ma długi idzie po sklepy dla świata Piotr i Paweł i Rumulus. 
 Dziś harbiom można być z badziewiakami Allegro, Amazon i Akszyn Github. 
+Piotr i Paweł i Rumulus i Oshoun to sklepy co sprzedają obiad jak Ankara. 
+Amazon Alexa, Translator, M5stack cardcomputer, Vois Alishia Iron Men servo 3.0.12. To sprzedaje produkty jak w bistro do radio druku kwnatowego w opakowaniu jak od kuriera. Te sklepy inne to są dla starych ludzi. 
