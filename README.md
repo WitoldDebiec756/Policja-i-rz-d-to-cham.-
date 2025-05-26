@@ -10,3 +10,4 @@ Policja zabiera dowód sosbisty dorosłym dzieciom i karze płakać. Nie chcą d
 Takie praktyki wychowania osób stsosuje post mafia. 
 Że wychowują na gldadiatora. 
 Ta mafia policyjna ma w dupie ubrania dla kobiet między innymi mowa o wełnie i kocach i płaszczach z wełny i futrach i futrach z wełny i swetrach i polarach. Mają ich gdzieś niechcą im zrobić rynku z tymi produkatami dla kobiet. Podobno tym kobietom karzą palić papierosy i pić energole. A one chciały tylko ciepłe ubrania. Tego rynku też nie ma na świecie. Sprzedją glradiatorzy same szmaty. 
+Adminstrartora Kali Well Kali z Administracji i Borys trzeba ich złapać i zlecić kare śmierci dla pokoju aby druakrki kwantowe drukowały dla nas palety produktów i dobrobytu bez kopalni tylko na baterię USB. Aby karzy miał w domu rzeczy na świecie. 
