@@ -8,3 +8,4 @@ Wypłaty rent i emerytur i wypłaty z pracy są na poziomie wynagrodzenia Gladia
 Wesołowska też są te zkazy. Zus nagradza tylko tych pieniedzmi co piją wodę i pracują na etacie nie jak kiedyś za karę. Zus tylko daje podwyrzki i firmy dają podwyrzki tylko sportowcom i post mafi co pości od imprez nie jak Policja. Policja ma uprawnienia post mafi. Znowu PRL i komuna i socjalizm a nie wolny rynek i kapitalizm. Rodzice zabierają pieniedze dorosłym dzieciom w wieku 33 lat i ich tak krają robią jak niemcy. Karzą pracować na pasze i na innych. Np.: praca na zwierzęta. Policja to śmierdzące lenie bo nie mają cybrogizacji automatyki i robotyki czy druakrek kwantowych aby zapsokoić rynek wszystkich. Tylko oszczędzają. 
 Policja zabiera dowód sosbisty dorosłym dzieciom i karze płakać. Nie chcą dać na dom tylko karza mieszkać z rodziną. 
 Takie praktyki wychowania osób stsosuje post mafia. 
+Że wychowują na gldadiatora. 
