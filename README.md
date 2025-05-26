@@ -4,3 +4,4 @@ Oni imprezują nie są trzeźwi po pracy i czasem w pracy w radiowozie a ludzie 
 Kali Well to koło nakowe papierosów i wódki za 1 zł też do rozbiruki idzie. Procesor Kali idzie na złom do eneris jak Policja. 
 Sami piją całe kali wel pije a my trzeźwi jak w PRL. 
 Z tym zachowaniem Policji i rządu i mosadu do Izraela won. 
+Wypłaty rent i emerytur i wypłaty z pracy są na poziomie wynagrodzenia Gladiadorskiego w niewoli jak wynagrodzenie murzyna w Polsace i na świecie dobre pensje ma tylko 112.  
