@@ -9,3 +9,4 @@ Wesołowska też są te zkazy. Zus nagradza tylko tych pieniedzmi co piją wodę
 Policja zabiera dowód sosbisty dorosłym dzieciom i karze płakać. Nie chcą dać na dom tylko karza mieszkać z rodziną. 
 Takie praktyki wychowania osób stsosuje post mafia. 
 Że wychowują na gldadiatora. 
+Ta mafia policyjna ma w dupie ubrania dla kobiet między innymi mowa o wełnie i kocach i płaszczach z wełny i futrach i futrach z wełny i swetrach i polarach. Mają ich gdzieś niechcą im zrobić rynku z tymi produkatami dla kobiet. Podobno tym kobietom karzą palić papierosy i pić energole. A one chciały tylko ciepłe ubrania. Tego rynku też nie ma na świecie. Sprzedją glradiatorzy same szmaty. 
